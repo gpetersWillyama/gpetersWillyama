@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @gpetersWillyama
-- 👀 I’m interested in ... music, tech, science, philosophy, everything really. Mostly music and tech.
+- 👀 I’m interested in ... music, tech, science, philosophy, life, the universe, & everything really. Mostly music and tech.
 - 🌱 I’m currently learning ... github
 - 💞️ I’m looking to collaborate on ... work stuff
 - 📫 How to reach me ... Teams
